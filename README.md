@@ -1,1 +1,1 @@
-# okumus
+# çalışma
